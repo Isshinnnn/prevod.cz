@@ -1,2 +1,0 @@
-# prevod.cz
-prevod
